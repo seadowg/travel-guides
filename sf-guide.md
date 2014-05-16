@@ -11,7 +11,7 @@ In my opinion this is the de facto experience. Go late at night after some drink
 ### La Taqueria (25th & Mission)
 
 This actually did my second favourite burrito in the city but I hear the tacos are the real reason to go. Unlike
-a lot of places this is only open unti around 9pm.
+a lot of places this is only open until around 9pm.
 
 ## Do Brunch Properly (i.e. wait and get drunk)
 
@@ -45,7 +45,7 @@ was actually used to film some external shots in "So I Married An Axe Murderer".
 
 ### Giordano Bros. (Columbus Ave. & Broadway)
 
-This is a Pittsburgh themed bar that does some amazing "All in One" sandwhiches. By all in one they mean bread, fries, cheese, slaw and some kind of meat(s).
+This is a Pittsburgh themed bar that does some amazing "All in One" sandwhiches. By "all in one" they mean bread, fries, cheese, slaw and some kind of meat(s).
 
 ## Do Touristy Shit
 
@@ -62,7 +62,7 @@ It's actually in a lot of places but I really like this spot as it really feels 
 ### The Ferry Building (The Embarcadero around Market St.)
 
 This building is a really cool place to hang out and look at the bay and the bridge. I'd recommend getting some clam
-chowder from Hog Island Oyster Co. The Slanted Door does a great cocktail also.
+chowder from Hog Island Oyster Company. The Slanted Door does a great cocktail also.
 
 ### Golden Gate Park
 
@@ -70,9 +70,9 @@ It's huge. If you've got some time to kill playing disc golf there is pretty goo
 
 ### The Armory (14th & Mission)
 
-This is the alternative SF tourist destination. The Armory was a National Guard armory back in the day and it
-now its a porn studio owned by BDSM specialists Kink.com. They do a pretty fun/interesting tour that will give you
-a quick insight into how relaxed SF is with sexuality. Many people think of it as a right of passage in SF.
+This is the alternative SF tourist destination. The Armory was a National Guard armory back in the day and
+now it's a porn studio owned by BDSM specialists Kink.com. They do a pretty fun/interesting tour that will give you
+a quick insight into how relaxed SF is with sexuality. Many people think of it as a rite of passage in SF.
 
 ## Go to Oakland
 
@@ -81,7 +81,7 @@ Personally I find a lot of Oakland just kind of boring. There is some cool stuff
 
 ### Take The Ferry
 
-You can grab the ferry to Oakland for around $6 from the Ferry Building. It's an awesome trip over the bay and there is even a bar on boar. Definitely the way to get there.
+You can grab the ferry to Oakland for around $6 from the Ferry Building. It's an awesome trip over the bay and there is even a bar on board. Definitely the way to get there.
 
 ### Home of Chicken & Waffles (Embarcadero West & Broadway)
 
@@ -104,7 +104,7 @@ SF likes it's coffee. Expect all mannner of hipsters and equipment in each place
 ### Blue Bottle (Mint Plaza)
 
 This is one of the most famous bay area brands. One time I went in and there was a guy making coffee with
-what looked like a test tube and a bunsen burner. His mustache was thick. Great coffee in all confugrations at many
+what looked like a test tube and a bunsen burner. His moustache was thick. Great coffee in all configuration at many
 different prices. The New Orleans style ice coffee is worth a shot.
 
 ### Blue Bottle (Webster & 3rd in Oakland)
@@ -114,7 +114,7 @@ I believe this is actually the orignal. Another way to stick it to the Oakland h
 ### Fourbarrel (15th & Valencia)
 
 This place became famous for it's dear heads and all vinyl music. The coffee is nice also. They have a single origin
-bar as well where someone will advise through choosing your perfect bean.
+bar as well where someone will take you through choosing your perfect bean.
 
 ### Philz (24th & Folsom)
 
@@ -123,7 +123,7 @@ everyone I knew's favourite coffee place then this would probably fall in the ce
 
 ## Drink Beer
 
-California has so many breweries. It makes Scotland's indie beer scene look pathetic. 
+California has so many breweries. It makes Scotland's indie beer scene look pathetic.
 
 ### City Beer Store (8th & Folsom)
 
@@ -154,7 +154,7 @@ I believe.
 ### Pi Bar (25th & Valencia)
 
 $3.14 slices and a great craft beer selection. This place is just indulgence at it's best. Get there
-between 3:14 and 6:28 pm for a pint and a slice for $6.28. I know right.
+between 3:14 and 6:28 pm for a pint and a slice for $6.28. I know right?
 
 ## Eat 'Murican Food
 
@@ -177,25 +177,25 @@ Chicago-esque style pizzas. These things really align with the "pie" translation
 
 ## Got To A Dive Bar
 
-The first time this terminology I wasn't really sure what it meant. It's basically the soul of the
+The first time I heard this terminology I wasn't really sure what it meant. It's basically the soul of the
 hip SF drinking scene.
 
 ### Zeitgeist (Valencie & Duboce Ave.)
 
 Huge beer garden, loads of beers and constantly playing metal. This place is everything I love about
 bars in SF. If you hang around late enough a woman will come in from the street and start selling
-$5 tamales. It's a a whole thing.
+$5 tamales. It's a whole thing.
 
 ### Tempest (5th & Natoma)
 
 I really came to love this place. $2 PBR's or one with a shot of Jim Bean for $5. It has a Street Fighter machine, an
-an awfully placed pool table and some really freaky artwork. Tempest actually does a sit down and very civil lunch
+awfully placed pool table and some really freaky artwork. Tempest actually does a sit down and very civil lunch
 that while surprising is really worth a try. Especially during work.
 
 ### Noc Noc (Haight & Steiner)
 
 Maybe not quite a dive bar but well... I dunno. This place has the craziest interior of any bar I've been
-to. There is like a bomb of the roof with like a gas mask or something on it. And everything is like a cave. I don't
+to. There is like a bomb on the roof with like a gas mask or something on it. And everything is like a cave. I don't
 know. Just go and be amazed that somewhere has Hobgoblin on tap 5000 miles away from England.
 
 ### The 500 Club (17th & Guerrero)
@@ -216,8 +216,8 @@ are great. It's hard to think about cocktails in SF without this place coming up
 
 ### Wilson & Wilson Detective Agency (Jones & O' Farrell)
 
-Wilson & Wilson is actually part of Bourbon & Branch but is run seperately. It has a cool concept where you
-take part in a three part cocktail menu that always ends in more drinks. Great after dinner place. Again, book ahead.
+Wilson & Wilson is actually part of Bourbon & Branch but it is run separately. It has a cool concept where you
+indulge in a three part cocktail menu that always ends in more drinks. Great after dinner place. Again, book ahead.
 
 ### Elixir (16th & Guerrero)
 
@@ -255,5 +255,4 @@ The garlic noodles and shaken beef seem to be everyone's go to choices here.
 ### Ruby Wine (18th & Connecticut)
 
 A cool little hang out if you want to drink some good wine. Be prepared to ask questions though as they're going to try
-and work out what you like. It's mostly a shop but it seemed like you could sit down and have a glass all though
-I never got round to this.
+and work out what you like. 
