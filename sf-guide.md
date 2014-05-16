@@ -1,5 +1,3 @@
-Right. I'm going to break this up into different things you should do. Here we go.
-
 ## Eat a Burrito
 
 If I was there for an hour it's what I would do.
@@ -255,4 +253,4 @@ The garlic noodles and shaken beef seem to be everyone's go to choices here.
 ### Ruby Wine (18th & Connecticut)
 
 A cool little hang out if you want to drink some good wine. Be prepared to ask questions though as they're going to try
-and work out what you like. 
+and work out what you like.
