@@ -97,7 +97,7 @@ great but it really is.
 
 ## Drink Coffee
 
-SF likes it's coffee. Expect all mannner of hipsters and equipment in each place.
+SF likes its coffee. Expect all mannner of hipsters and equipment in each place.
 
 ### Blue Bottle (Mint Plaza)
 
@@ -111,12 +111,12 @@ I believe this is actually the orignal. Another way to stick it to the Oakland h
 
 ### Fourbarrel (15th & Valencia)
 
-This place became famous for it's dear heads and all vinyl music. The coffee is nice also. They have a single origin
+This place became famous for its dear heads and all vinyl music. The coffee is nice also. They have a single origin
 bar as well where someone will take you through choosing your perfect bean.
 
 ### Philz (24th & Folsom)
 
-Great for it's huge menu of weird coffees. Actually possible to hang out in also. If I had a venn diagram of
+Great for its huge menu of weird coffees. Actually possible to hang out in also. If I had a Venn diagram of
 everyone I knew's favourite coffee place then this would probably fall in the center.
 
 ## Drink Beer
@@ -151,7 +151,7 @@ I believe.
 
 ### Pi Bar (25th & Valencia)
 
-$3.14 slices and a great craft beer selection. This place is just indulgence at it's best. Get there
+$3.14 slices and a great craft beer selection. This place is just indulgence at its best. Get there
 between 3:14 and 6:28 pm for a pint and a slice for $6.28. I know right?
 
 ## Eat 'Murican Food
@@ -173,7 +173,7 @@ eat in the city. Fried chicken, deep fried pork chop, mac and cheese OMG I'M HUN
 Chicago-esque style pizzas. These things really align with the "pie" translation of the word. One of my favourite
 'pizza' places in the world.
 
-## Got To A Dive Bar
+## Go To A Dive Bar
 
 The first time I heard this terminology I wasn't really sure what it meant. It's basically the soul of the
 hip SF drinking scene.
@@ -208,7 +208,7 @@ in booze.
 
 ### Bourbon & Branch (Jones & O' Farrell)
 
-This is actually a genuine speak easy - password and everything. I would advise doing it properly and booking ahead
+This is actually a genuine speakeasy - password and everything. I would advise doing it properly and booking ahead
 to get a table and the full drinks menu. Although pretentious, the bar staff are actually pretty chill and the drinks
 are great. It's hard to think about cocktails in SF without this place coming up.
 
@@ -248,9 +248,8 @@ with someone. I'm a big fan of their veal main course.
 ### Sunflower (18th & Connecticut)
 
 One thing I was surprised by in SF is how much Vietnamese food there was. This place ended up being my favourite.
-The garlic noodles and shaken beef seem to be everyone's go to choices here.
+The garlic noodles and shaken beef seem to be everyone's go-to choices here.
 
 ### Ruby Wine (18th & Connecticut)
 
-A cool little hang out if you want to drink some good wine. Be prepared to ask questions though as they're going to try
-and work out what you like.
+A cool little hang out if you want to drink some good wine. Be prepared to ask/answer questions though as they're going to try and work out what you like.
