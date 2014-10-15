@@ -1,5 +1,10 @@
-## Montmartre
+## Visit Montmartre
 
-## Where to eat
+## L'Homme Tranquille
+Delicious traditional French cuisine.
 
-### Chez Gladine
+## Have a Sweetie
+
+### Dalloyau (Luxembourg)
+
+Here you can buy the best macarons Paris has to offer and enjoy them in the beautiful Jardin du Luxembourg.
