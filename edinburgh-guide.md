@@ -5,6 +5,8 @@ is actually one of Edinburgh's most respected Pakistani restaurants. Don't get a
 a pizza. The Chicken Tikka Masalla is a unique highlight and the Naan's are about the size of a small
 child. Biryani's are a big favourite here also.
 
+### Mosque Kitchen
+
 ### Bia Bistro
 
 ### Yum Yum HK Diner
@@ -19,3 +21,16 @@ child. Biryani's are a big favourite here also.
 
 ### Treehouse
 
+### Auldhoose
+
+### Freemans
+
+### Artisan Roast
+
+### Brew Lab
+
+### Joseph Pierce
+
+### Mother India
+
+### Kampong Ah Lee
