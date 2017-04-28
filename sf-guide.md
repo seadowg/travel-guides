@@ -72,29 +72,6 @@ This is the alternative SF tourist destination. The Armory was a National Guard 
 now it's a porn studio owned by BDSM specialists Kink.com. They do a pretty fun/interesting tour that will give you
 a quick insight into how relaxed SF is with sexuality. Many people think of it as a rite of passage in SF.
 
-## Go to Oakland
-
-Everyone thinks it's dangerous. It might be a bit but a lot of people are also scared of anywhere not gentrified.
-Personally I find a lot of Oakland just kind of boring. There is some cool stuff though.
-
-### Take The Ferry
-
-You can grab the ferry to Oakland for around $6 from the Ferry Building. It's an awesome trip over the bay and there is even a bar on board. Definitely the way to get there.
-
-### Home of Chicken & Waffles (Embarcadero West & Broadway)
-
-Exactly what is says on the tin. I don't know what else to say.
-
-### Beer Revolution (3rd & Broadway)
-
-One of the best beer places in the area. Around 20 beers on tap and a large set of fridges full of bottles. You
-can definitely spend a few hours here.
-
-### Souley Vegan (3rd & Broadway)
-
-Vegan soul food. Barbecued tofu, vegan mac and cheese etc. It's pretty hard to be convincing about this place being
-great but it really is.
-
 ## Drink Coffee
 
 SF likes its coffee. Expect all mannner of hipsters and equipment in each place.
