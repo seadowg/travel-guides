@@ -240,11 +240,6 @@ German style beer garden in SF. If you feel like a stein of lager while sitting 
 I am biased as I used to live here but I think the view from here is the best in the city. Go all the way
 up to 20th & Rhode Island for the best view. There is also some great food around 18th & Connecticut.
 
-### Chez Maman (18th & Connecticut)
-
-One of my favourite restaurants in the city. Awesome French food and a fun but intimate vibe. Great for an actual meal
-with someone. I'm a big fan of their veal main course.
-
 ### Sunflower (18th & Connecticut)
 
 One thing I was surprised by in SF is how much Vietnamese food there was. This place ended up being my favourite.
