@@ -95,6 +95,15 @@ can definitely spend a few hours here.
 Vegan soul food. Barbecued tofu, vegan mac and cheese etc. It's pretty hard to be convincing about this place being
 great but it really is.
 
+### Doughnut Dolly (Temescal)
+
+Take your pick of filling and topping options to construct your dream donut. Also,
+good coffee.
+
+### Temescal Brewing (Telegraph)
+
+Cool taproom for housemade brews with a sunny beer garden, and free popcorn.
+
 ## Drink Coffee
 
 SF likes its coffee. Expect all mannner of hipsters and equipment in each place.
@@ -153,6 +162,12 @@ I believe.
 
 $3.14 slices and a great craft beer selection. This place is just indulgence at its best. Get there
 between 3:14 and 6:28 pm for a pint and a slice for $6.28. I know right?
+
+### Tour the Anchor Brewery
+
+Take one of their guided daily tours (you do need to book in advance) to find out the
+history of the SF brewery, see their production process and round off with a tasting
+session.
 
 ## Eat 'Murican Food
 
@@ -222,18 +237,25 @@ indulge in a three part cocktail menu that always ends in more drinks. Great aft
 Part cocktail bar, part dive bar. This is a good combination of all SF drinking experiences slap bang in
 the middle of the mission.
 
-## Visit Hayes Valley
+## Eat Ice Cream
 
-This is just a great little part of SF.
+Maybe not something you'd associate with SF but it happens to be damn good at it.
 
 ### Smitten Ice Cream (Octavia & Hayes)
 
 Smitten makes ice cream from scratch, in 5 minutes, using liquid nitrogen. The ice cream is genuinely awesome. The
 best flavour I ever had here was Earl Grey and Chocolate Chip. There is a great park next to it to hang out in also.
 
-### Biergarten (Octavia & Fell)
+### Powder Shaved Snow (Divisadero St)
 
-German style beer garden in SF. If you feel like a stein of lager while sitting outside then this is your place.
+For ice cream with a twist, try a whirl of ‘shaved snow’. They serve banging flavours
+like Matcha Green Tea and Black Sesame and a whole host of toppings.
+
+### It’s It
+
+These babies are a San Francisco Ice cream icon. Made in the bay area since 1928,
+a heady combination of ice cream sandwiched between oat cookies and coated in
+dark chocolate - Try the mint choc, you won’t regret it.
 
 ## Go Up Potrero Hill
 
