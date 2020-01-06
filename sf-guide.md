@@ -31,20 +31,6 @@ crab cakes. Pro tip: beignets. They are the best.
 
 This is a bit intense. Bottomless mimosas and fairly decent food. A great way to ruin a day.
 
-## Visit North Beach
-
-North Beach is also referred to as Little Italy. It's one of the oldest parts of the city and is great for a
-wonder - especially as it's so close to Chinatown.
-
-### Vesuvio (Columbus Ave. & Jack Kerouac Alley)
-
-Yes that's seriously the street name. This is one of the coolest looking bars in the city. Serves absinthe. This bar
-was actually used to film some external shots in "So I Married An Axe Murderer".
-
-### Giordano Bros. (Columbus Ave. & Broadway)
-
-This is a Pittsburgh themed bar that does some amazing "All in One" sandwhiches. By "all in one" they mean bread, fries, cheese, slaw and some kind of meat(s).
-
 ## Do Touristy Shit
 
 I never really found SF was as good for sightseeing as I would have thought. There are some things that are cool though.
@@ -65,12 +51,6 @@ chowder from Hog Island Oyster Company. The Slanted Door does a great cocktail a
 ### Golden Gate Park
 
 It's huge. If you've got some time to kill playing disc golf there is pretty good fun.
-
-### The Armory (14th & Mission)
-
-This is the alternative SF tourist destination. The Armory was a National Guard armory back in the day and
-now it's a porn studio owned by BDSM specialists Kink.com. They do a pretty fun/interesting tour that will give you
-a quick insight into how relaxed SF is with sexuality. Many people think of it as a rite of passage in SF.
 
 ## Go to Oakland
 
