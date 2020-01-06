@@ -1,10 +1,33 @@
-## Visit Montmartre
+## Eat Bistro food
 
-## L'Homme Tranquille
-Delicious traditional French cuisine.
+### Au General la Fayette
 
-## Have a Sweetie
+### L'Homme Tranquille
 
-### Dalloyau (Luxembourg)
+## Do some culture
 
-Here you can buy the best macarons Paris has to offer and enjoy them in the beautiful Jardin du Luxembourg.
+### Centre Pompidou 
+
+### Cinémathèque Française
+
+### 59 Rivoli
+
+## Eat Croissants
+
+## Mamiche
+
+## Drink trendy wine
+
+### La Buvette
+
+### L'Etiquette
+
+### Septime Le Cave
+
+## Save money in Parisian (American) dive bars
+
+### Stolly's
+
+### Red House
+
+### Holy Holster
