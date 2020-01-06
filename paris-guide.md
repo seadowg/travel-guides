@@ -31,3 +31,11 @@
 ### Red House
 
 ### Holy Holster
+
+## Loiter
+
+### Ile Saint-Louis
+
+### Canal Saint-Martin
+
+### Place de la République
