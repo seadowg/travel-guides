@@ -42,4 +42,14 @@
 
 ## Take a break from french food
 
+### L'As du Fallafel
+
+### Chennai Dosa
+
 ## Stay in a hotel
+
+### Grand Pigalle
+
+### Hotel Amour
+
+### Grand Amour
