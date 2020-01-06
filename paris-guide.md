@@ -40,4 +40,6 @@
 
 ### Place de la République
 
-## Eat Southern Indian food
+## Take a break from french food
+
+## Stay in a hotel
